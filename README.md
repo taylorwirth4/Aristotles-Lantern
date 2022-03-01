@@ -1,3 +1,3 @@
 # Aristotles-Lantern
 
-CAD files available here: https://sites.google.com/a/eng.ucsd.edu/156b-2015-winter-team4/reports/cad
+CAD files available above to download. Any questions please email me: taylorwirth4@gmail.com
